@@ -3,6 +3,6 @@ Inlämningsuppgift - Portfolio,
 student på KYH Stockholm
 
 I denna portfolion kan du läsa om mig, allt ifrån egenskaper till intressen. 
-Du hittar även 2 bilder på mig samt 2 enkla projekt som jag gjorde under min tid på gymnasiet!
+Du hittar även projekt som jag gjort under min tid på gymnasiet, på fritiden och under yrkeshögskolan!
 
 Jag nås på mail: simon.khalaf@hotmail.se
